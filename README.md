@@ -1,6 +1,8 @@
 # zoom-virtual-backgrounds
 
-A place to store fun Zoom backgrounds that I find on the internet
+This is a place to store fun Zoom virtual backgrounds
+
+More of a filters person? Check out [Snap Camera](https://snapcamera.snapchat.com/)
 
 
 # Links
