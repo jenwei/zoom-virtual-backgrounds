@@ -12,3 +12,4 @@ Places where I found some (not all) of the backgrounds
 * https://zoommeetingbackgrounds.com
 * https://baggu.com/pages/wallpapers
 * https://unsplash.com/collections/1887152/zoom-backgrounds
+* https://twitter.com/BeeShellll/status/1245030591386566656
