@@ -18,3 +18,4 @@ Places where I found some (not all) of the backgrounds
 * https://twitter.com/matthunzi/status/1252259919304314880?s=20
 * http://www.nickelodeonparents.com/customizable-nickelodeon-zoom-backgrounds/
 * https://twitter.com/DisneyStudios/status/1245031175736999938
+* https://www.dezeen.com/2026/01/26/heated-rivalry-cottage-set-design/
